@@ -16,3 +16,5 @@ this script is just for fun not for bad using!!
 Enjoy!
 
 Note: Only for fun and nothing else!😤
+
+# coming soon for Linux!
